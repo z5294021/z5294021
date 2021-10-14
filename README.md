@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Suhang Wei, I want to improve my programming skills so i come here. 
+- But I’m currently preparating for a very important examination, making me lack time to concentrate on the programming learning 😣
+- One week later i will have adequate time for INFS5715, i hope i can learn many useful skills from my teachers and classmates😄
+- 📫 How to reach me？
+- Wechat: wsh54110
